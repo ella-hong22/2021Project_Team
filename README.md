@@ -14,7 +14,8 @@
 ![image](https://user-images.githubusercontent.com/72532377/109468957-b84fc380-7ab0-11eb-8a28-f07f5d110a7e.png)
 
 # 최종 결과
-![image](https://user-images.githubusercontent.com/72532377/109469033-d1587480-7ab0-11eb-8963-646678307060.png)
+![image](https://user-images.githubusercontent.com/72532377/109469715-bf2b0600-7ab1-11eb-8553-de68cbcf91cb.png)
+
 
 
 최종 ppt는 dwdoit22@gmail.com 으로 요청부탁드립니다. 
